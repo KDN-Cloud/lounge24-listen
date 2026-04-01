@@ -39,7 +39,7 @@ It's a mixed bag on purpose. The vibe shifts throughout the day.
 
 ## 🎙️ Live Mixes & Guest Broadcasts
 
-Every now and then we will open the station up for live DJ sets. If you spin **House, Jungle, Hip-Hop**, or anything in that general orbit and want to broadcast live, hit me up — I'm always down to connect with other selectors.
+Every now and then we will open the station up for live DJ sets. If you spin **House, Jungle, Hip-Hop**, or anything in that general orbit and want to broadcast live, def reach out — I'm always down to connect with other selectors.
 
 📬 **Contact:** `radio@aklein.pro`
 
