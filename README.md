@@ -49,3 +49,10 @@ Every now and then we will open the station up for live DJ sets. If you spin **H
 
 - The station runs mostly 24/7 on AutoDJ rotation when there's no **live** set going
 - No accounts, no sign-ups — just press play
+
+---
+
+## 🔗 Related sites
+
+- [aklein.studio](https://aklein.studio) — Studio A
+- [b.aklein.studio](https://b.aklein.studio) — Session Notes
